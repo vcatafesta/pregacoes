@@ -125,12 +125,12 @@ Cuidados com gente que:
 - 👉   movimentando ambientes,  
 - 👉   seduzindo pela força da personalidade.
 
-E quando você percebe voce vira:
+E quando você percebe voce vira:  
 -👉 um bichino de presépío, que só balança a cabeça.  
 -👉 virou marionete, e outra passa a responder por você  
 -👉 ela fala por você.  
 -👉 ela decide por você.  
--👉   **e você vira sombra**
+-👉   **e você vira sombra**  
 
 - Jezabel apaga a identidade de quem está perto  
 - 👉  e você se escraviza.  
