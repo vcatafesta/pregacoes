@@ -120,24 +120,24 @@ E quando você percebe:
 
 ---
 
-## 00:09:56 — Jezabel apaga a identidade de quem está perto
+## Jezabel apaga a identidade de quem está perto
 Ela:
 
-- fala por você,  
-- pensa por você,  
-- gesticula para você,  
-- comanda você,  
-- dita comportamento com os olhos.
+- 👉  fala por você,  
+- 👉  pensa por você,  
+- 👉  gesticula para você,  
+- 👉  comanda você,  
+- 👉  dita comportamento com os olhos.
 
 A pessoa dominada se torna sombra, presença apagada, reflexo ofuscado.
 
 Esse comportamento aparece em:
 
-- amizades tóxicas,  
-- relacionamentos,  
-- casas,  
-- ministérios,  
-- ambientes profissionais.
+- 👉  amizades tóxicas,  
+- 👉  relacionamentos,  
+- 👉  casas,  
+- 👉  ministérios,  
+- 👉  ambientes profissionais.
 
 ---
 
