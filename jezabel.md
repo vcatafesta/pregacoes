@@ -86,9 +86,10 @@ Se alguém está se imaginando num trono dando ordens espirituais…
 Jezabel é a única rainha com destaque profundo na narrativa espiritual de Israel.  
 
 A sua história começa em 1Reis 16:31:  
-quando a Bíblia afirma acerca de um homem chamado Acabe que como   
-se não lhe bastasse andar nos pecados de Jeroboão filho de  
-Nabate ele desposou ainda Jezabel filha de Eti-Baal rei dos sidônios e chegou até  
+Quando a Bíblia afirma acerca de um homem chamado Acabe que como   
+se não lhe bastasse andar nos pecados de Jeroboão filho de Nabate  
+
+Ele desposou ainda Jezabel filha de Eti-Baal rei dos Sidônios e chegou até  
 render culto a Baal prostrando-se diante dele.  
 
 Então quem é Jezabel?
@@ -96,11 +97,11 @@ Então quem é Jezabel?
  
 Ou seja:
 
-👉 **Jezabel foi mais um erro na vida de Acabe.**
+👉   **Jezabel foi mais um erro na vida de Acabe.**
 
-- Acabe não é um santo, está andando no caminho de Jeroboão filho de nabate
+- Acabe não é um santo, está andando no caminho de Jeroboão filho de Nabate
 - “Como se fora pouca coisa andar nos pecados de Jeroboão, Acabe ainda tomou por mulher a Jezabel…”
-- Acabe não tem um coração Submisso mas Jezabel é mais um item na sua lista de erros cometidos.
+- Acabe não tem um coração submisso e Jezabel é mais um item na sua lista de erros cometidos.
 
 E aqui entra uma oração séria:
 
@@ -109,10 +110,9 @@ E aqui entra uma oração séria:
 ---
 
 ## Jezabel: dominadora e carismática
-Acabe casa com Jezabel por conta de um acordo político  
-mas não demorou nada para ele se apaixonar por ela, porque pessoas como Jezabel são:
-- Apaixonantes:
-
+Acabe casa com Jezabel por conta de um acordo político,  
+**mas não demorou nada para ele se apaixonar por ela, porque pessoas como Jezabel são:**
+- **Apaixonantes, pois é**
 - Jezabel é dominadora,
 - mas também carismática
 
