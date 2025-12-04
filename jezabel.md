@@ -141,20 +141,20 @@ Esse comportamento aparece em:
 
 ---
 
-## 00:11:23 — Jezabel parecia excelente esposa
+## Jezabel parecia excelente esposa
 Ela percebia:
 
-- o olhar de Acabe,  
-- o humor,  
-- a tristeza,  
-- a irritação,  
-- o desejo,  
-- a frustração.
+- 👉  o olhar de Acabe,  
+- 👉  o humor,  
+- 👉  a tristeza,  
+- 👉  a irritação,  
+- 👉  o desejo,  
+- 👉  a frustração.
 
 Era ótima esposa.  
 Mas isso não faz dela santa.
 
-👉 Ser boa esposa não te torna mulher de Deus.
+👉   **Ser boa esposa não te torna mulher de Deus.**
 
 ---
 
