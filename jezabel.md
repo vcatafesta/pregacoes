@@ -158,17 +158,17 @@ Mas isso não faz dela santa.
 
 ---
 
-## 00:12:48 — Jezabel era extremamente religiosa
+## 00:12 — Jezabel era extremamente religiosa
 Ela não era apenas adepta ao culto de Baal —  
 era **missionária do culto de Baal**.
 
 Ela:
 
-- trouxe profetas,  
-- instituiu sacerdotes,  
-- implantou altares,  
-- estruturou a idolatria,  
-- transformou Israel numa matriz baalita.
+- 👉  trouxe profetas,  
+- 👉  instituiu sacerdotes,  
+- 👉  implantou altares,  
+- 👉  estruturou a idolatria,  
+- 👉  transformou Israel numa matriz baalita.
 
 Jezabel “vivia o que pregava” —  
 só que pregava demônios.
