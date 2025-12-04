@@ -224,23 +224,25 @@ que foi aprendido pelos antepassados
 - 👉  transformou Israel numa matriz baalita.
 
 **Jezabel “vivia o que pregava, e pregava o que vivia”**  
-só que pregava demônios.
-
-Era “crente” — mas do lado errado.
 
 ---
 
-## 00:14:01 — Jezabel seria aplaudida hoje
-Se existisse hoje, Jezabel provavelmente seria:
+## Jezabel nos dias de hoje
+Jezabel, uma mulher influente na política e na sociedade  
+O Rei não sabe ou finge que não sabe!  
+Mas quem dá as últimas ordens é ELA!  
 
-- influencer,  
-- pregadora convidada,  
+Se existisse hoje, Jezabel provavelmente seria aplaudida pela maioria de nós:
+
+- Arrastaria milhares de seguidores nas redes sociais,  
+- Pregaria nos nossos principais congressos,  
 - conferencista,  
 - líder de grande visibilidade,  
 - referência de força feminina.
 
 Ela tinha:
-
+- era religiosa,  
+- era excelente esposa, ela é sensivel à necessidades de seu marido  
 - carisma,  
 - poder,  
 - presença,  
