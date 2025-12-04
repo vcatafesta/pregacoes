@@ -116,7 +116,7 @@ E quando você percebe:
 👉 ela decide por você.  
 👉 ela apaga você.
 
-** Jezabel não apenas domina — ela substitui.**
+**Jezabel não apenas domina — ela substitui.**
 
 ---
 
