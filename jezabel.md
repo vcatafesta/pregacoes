@@ -99,8 +99,9 @@ E aqui entra uma oração séria:
 Acabe casou com ela por estratégia política,  
 mas se apaixonou — porque pessoas dominadoras são apaixonantes.
 
-Elas chegam:
+Elas:
 
+- 👉   chegam chegando,  
 - 👉   falando forte,  
 - 👉   resolvendo tudo,  
 - 👉   impondo presença,  
@@ -115,7 +116,7 @@ E quando você percebe:
 👉 ela decide por você.  
 👉 ela apaga você.
 
-Jezabel não apenas domina — ela substitui.
+** Jezabel não apenas domina — ela substitui.**
 
 ---
 
