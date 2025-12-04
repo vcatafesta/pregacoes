@@ -174,9 +174,9 @@ Não é um atributo apenas desempregados tem patrão que se comporta da mesma ma
 - 👉   tem liderados que tentam se comportar da mesma maneira  
 - 👉   eles atropelam os líderes,atropela você Missionária  
 
-Tem igreja que o espírito de Jezabel se manifesta com facilidade
-e confundimos a mulher do pastor, eu penso que a mulher do pastor é a Jezabel
-porque a Jezabel apaga a figura da mulher do pastor ela 
+Tem igreja que o espírito de Jezabel se manifesta com facilidade  
+e confundimos a mulher do pastor, eu penso que a mulher do pastor é a Jezabel  
+porque a Jezabel apaga a figura da mulher do pastor ela:  
 - 👉   fala mais alto
 - 👉   ela é mais fluente
 - 👉   ela gesticula
@@ -185,10 +185,10 @@ porque a Jezabel apaga a figura da mulher do pastor ela
 - 👉   e a mulher do pastor fica lá toda encolhida e a Jezabel na frente.
 
 Diga:
-- ela pode ser maior que você  
-- ela pode ser melhor que você  
-- mas ela não é você!  
-- não deixa ela se apropriar do que é seu lugar
+- 👉   ela pode ser maior que você  
+- 👉   ela pode ser melhor que você  
+- 👉   mas ela não é você!  
+- 👉   não deixa ela se apropriar do que é seu lugar
 
 ---
 
