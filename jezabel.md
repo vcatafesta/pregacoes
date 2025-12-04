@@ -126,7 +126,6 @@ Cuidados com gente que:
 - 👉   seduzindo pela força da personalidade.
 
 E quando você percebe voce vira:
-
 - 👉 um bichino de presépío, que só balança a cabeça.  
 - 👉 virou marionete, e outra passa a responder por você  
 - 👉 ela fala por você.  
