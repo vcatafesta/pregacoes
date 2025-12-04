@@ -9,7 +9,11 @@ Abra sua Bíblia no primeiro livro dos Reis, capítulo 22, versículo 40:
 **“Assim dormiu Acabe com seus pais, e Acazias, seu filho, reinou em seu lugar.”**
 
 Hoje vamos caminhar pela história de Jezabel — uma mulher que marcou negativamente o reino de Israel
-e que se tornou símbolo de idolatria, domínio, manipulação e destruição espiritual.
+e que se tornou símbolo de:
+👉    idolatria,  
+👉    domínio,  
+👉    manipulação e  
+👉    destruição espiritual.
 E, sobretudo, símbolo de um dos maiores fracassos possíveis: **uma mulher que esqueceu de ser mãe**.
 
 A Bíblia nos leva a repetir:
@@ -19,8 +23,8 @@ A Bíblia nos leva a repetir:
 - O estudo sobre ela não é apenas histórico, mas profundamente espiritual, moral e humano.  
 - Jezabel representa o tipo de pessoa que tem:
 
-👉  energia  
-👉  força  
+👉   energia  
+👉   força  
 👉   influência   
 👉   e presença  
 👉   — mas não tem Deus.
@@ -81,13 +85,22 @@ Se alguém está se imaginando num trono dando ordens espirituais…
 
 ## A única rainha trabalhada espiritualmente: Jezabel
 Jezabel é a única rainha com destaque profundo na narrativa espiritual de Israel.  
-A sua história começa em 1Reis 16:31:
 
-“Como se fora pouca coisa andar nos pecados de Jeroboão, Acabe ainda tomou por mulher a Jezabel…”
+A sua história começa em 1Reis 16:31: quando a Bíblia afirma acerca de um homem
+chamado Acabe que como se não lhe bastasse andar nos pecados de Jeroboão filho de
+Nabate ele desposou ainda Jezabel filha de Eti-Baal rei dos sidônios e chegou até
+render culto a Baal prostrando-se diante dele.
 
+Então quem é Jezabel?
+- Posso simplificar através de uma palavra ou de uma frase:
+ 
 Ou seja:
 
 👉 **Jezabel foi mais um erro na vida de Acabe.**
+
+- Acabe não é um santo, está andando no caminho de Jeroboão filho de nabate
+- “Como se fora pouca coisa andar nos pecados de Jeroboão, Acabe ainda tomou por mulher a Jezabel…”
+- Acabe não tem um coração Submisso mas Jezabel é mais um item na sua lista de erros cometidos.
 
 E aqui entra uma oração séria:
 
@@ -96,10 +109,14 @@ E aqui entra uma oração séria:
 ---
 
 ## Jezabel: dominadora e carismática
-Acabe casou com ela por estratégia política,  
-mas se apaixonou — porque pessoas dominadoras são apaixonantes.
+Acabe casa com Jezabel por conta de um acordo político  
+mas não demorou nada para ele se apaixonar por ela, porque pessoas como Jezabel são:
+- Apaixonantes:
 
-Elas:
+- Jezabel é dominadora,
+- mas também carismática
+
+Cuidados com gente que:
 
 - 👉   chegam chegando,  
 - 👉   falando forte,  
@@ -108,21 +125,15 @@ Elas:
 - 👉   movimentando ambientes,  
 - 👉   seduzindo pela força da personalidade.
 
-E quando você percebe:
+E quando você percebe voce vira:
 
-👉 virou marionete.  
-👉 virou sombra.  
-👉 ela fala por você.  
-👉 ela decide por você.  
-👉 ela apaga você.
-
-**Jezabel não apenas domina — ela substitui.**
-
----
-
-## Jezabel apaga a identidade de quem está perto
-Ela:
-
+- 👉 um bichino de presépío, que só balança a cabeça.  
+- 👉 virou marionete, e outra passa a responder por você  
+- 👉 virou sombra.  
+- 👉 ela fala por você.  
+- 👉 ela decide por você.  
+- Jezabel apaga a identidade de quem está perto
+- 👉  e você se escraviza.
 - 👉  fala por você,  
 - 👉  pensa por você,  
 - 👉  gesticula para você,  
@@ -131,13 +142,57 @@ Ela:
 
 A pessoa dominada se torna sombra, presença apagada, reflexo ofuscado.
 
-Esse comportamento aparece em:
+**Jezabel não apenas domina — ela substitui.**
+
+---
+
+## Comportamento de uma Jezabel
+Pessoas dominadoras são apaixonantes, mas também são:
+
+- arruinantes
+
+- Prefira pessoas simples, prefira pessoas  
+- Gente que não:
+- 👉  Jogam você para trás para responder no seu lugar
+- 👉  Pesoas que não apagam nossa presença que elas estão presentes
+
+São extremamente envolventes, e eu não estou falando de pessoa capaz, 
+eu estou falando de gente **maligna**
+
+Então cuidado com:
 
 - 👉  amizades tóxicas,  
 - 👉  relacionamentos,  
 - 👉  casas,  
 - 👉  ministérios,  
 - 👉  ambientes profissionais.
+
+- Gente que entra na casa de uma mulher e faz essa mulher perder o sentido do que ela é  
+- e você passa a ser alguém lá atrás e ela lá à frente, demita esta empregada o quanto  
+- antes porque agora ela manda em você, daqui a pouco ela estará no seu lugar  
+
+Não é um atributo apenas desempregados tem patrão que se comporta da mesma maneira
+- 👉   responde por você  
+- 👉   fala por você  
+- 👉   e apaga a sua presença  
+- 👉   tem liderados que tentam se comportar da mesma maneira  
+- 👉   eles atropelam os líderes,atropela você Missionária  
+
+Tem igreja que o espírito de Jezabel se manifesta com facilidade
+e confundimos a mulher do pastor, eu penso que a mulher do pastor é a Jezabel
+porque a Jezabel apaga a figura da mulher do pastor ela 
+- 👉   fala mais alto
+- 👉   ela é mais fluente
+- 👉   ela gesticula
+- 👉   ela conversa
+- 👉   ela dá ordens
+- 👉   e a mulher do pastor fica lá toda encolhida e a Jezabel na frente.
+
+Diga:
+- ela pode ser maior que você  
+- ela pode ser melhor que você  
+- mas ela não é você!  
+- não deixa ela se apropriar do que é seu lugar
 
 ---
 
@@ -170,7 +225,7 @@ Ela:
 - 👉  estruturou a idolatria,  
 - 👉  transformou Israel numa matriz baalita.
 
-Jezabel “vivia o que pregava” —  
+Jezabel “vivia o que pregava, e pregava o que vivia” —  
 só que pregava demônios.
 
 Era “crente” — mas do lado errado.
