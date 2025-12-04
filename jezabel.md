@@ -149,12 +149,12 @@ A pessoa dominada se torna sombra, presença apagada, reflexo ofuscado.
 Pessoas dominadoras são apaixonantes, mas também são:  
 - 👉   **arruinantes**
 
-- Prefira pessoas simples, prefira pessoas, gente que não:  
+Prefira pessoas simples, prefira pessoas, gente que não:  
 - 👉  Jogam você para trás para responder no seu lugar  
 - 👉  Pesoas que não apagam nossa presença que elas estão presentes  
 
-São extremamente envolventes, e eu não estou falando de pessoa capaz, 
-eu estou falando de gente **maligna**
+São extremamente envolventes, e eu não estou falando de pessoa capaz,   
+eu estou falando de gente **maligna**  
 
 Então cuidado com:
 
