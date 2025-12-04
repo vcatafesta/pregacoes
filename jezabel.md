@@ -112,9 +112,9 @@ E aqui entra uma oração séria:
 ## Jezabel: dominadora e carismática
 Acabe casa com Jezabel por conta de um acordo político,  
 **mas não demorou nada para ele se apaixonar por ela, porque pessoas como Jezabel são:**
-- **Apaixonantes, pois é**
-- Jezabel é dominadora,
-- mas também carismática
+- 👉   **Apaixonantes, pois é**
+- 👉   Jezabel é dominadora,
+- 👉   mas também carismática
 
 Cuidados com gente que:
 
