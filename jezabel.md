@@ -41,8 +41,7 @@ Ela não era uma rainha nem do reino do norte (Israel) en do reino do sul (Judá
 Ela é uma rainha que vai reinar na fortaleza de Susã, que é uma estância de inverno dos reis Persas, e
 ela reina inclusive inicialmente sem que tenham ciência que é uma Judia.
 
-- 
-Por que isso?
+### Por que isso?
 
 Porque a Bíblia não apresenta a mulher de Deus como:
 
