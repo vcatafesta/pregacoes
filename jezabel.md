@@ -27,8 +27,8 @@ A Bíblia nos leva a repetir:
 
 ---
 
-## A figura da rainha na Bíblia
-- Igreja, a Bíblia quase não trabalha a figura da rainha como protagonista espiritual.  
+## A figura da Rainha na Bíblia
+- A Bíblia quase não trabalha a figura da rainha como protagonista espiritual.  
 - Nós vamos ter uma lista de rainhas no AT e vamos ter uma lista de rainhas no NT.  
 - Existem rainhas mencionadas no Antigo e no Novo Testamento, mas nenhuma recebe relevância espiritual entre Israel e Judá — **exceto Jezabel**, e depois sua “miniatura”, Atalia.
 - Mas praticamente nenhuma delas tem grande notoriedade, grande evidência dentro de Israel de Judá senaão esta Jezabel.  
@@ -58,10 +58,14 @@ A Bíblia apresenta a mulher como:
 ---
 
 ## Princesa? Só de caráter, não de trono
-A cultura moderna criou o “culto da princesa”:  
-dia da princesa, culto da princesa, tema da princesa.
+A cultura moderna criou:
+- o “culto da princesa”:  
+- dia da princesa,  
+- tema da princesa.
+- É bonito,  
+- é charmoso
 
-É bonito, é charmoso, mas **não é teológico**.
+mas **não é teológico**.
 
 “Princesa”, biblicamente, só se for:
 
