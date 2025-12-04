@@ -193,17 +193,17 @@ Diga:
 ---
 
 ## Jezabel parecia excelente esposa
-Ela percebia:
+**Ela percebia:**
 
 - 👉  o olhar de Acabe,  
-- 👉  o humor,  
-- 👉  a tristeza,  
-- 👉  a irritação,  
-- 👉  o desejo,  
-- 👉  a frustração.
+- 👉  o humor de Acabe,  
+- 👉  a tristeza de Acabe,  
+- 👉  a irritação de Acabe,  
+- 👉  o desejo de Acabe,  
+- 👉  a frustração de Acabe.
 
-Era ótima esposa.  
-Mas isso não faz dela santa.
+**Era ótima esposa!**  
+**Mas isso não faz dela santa.**
 
 👉   **Ser boa esposa não te torna mulher de Deus.**
 
