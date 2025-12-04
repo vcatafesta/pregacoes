@@ -86,10 +86,11 @@ Se alguém está se imaginando num trono dando ordens espirituais…
 ## A única rainha trabalhada espiritualmente: Jezabel
 Jezabel é a única rainha com destaque profundo na narrativa espiritual de Israel.  
 
-A sua história começa em 1Reis 16:31: quando a Bíblia afirma acerca de um homem
-chamado Acabe que como se não lhe bastasse andar nos pecados de Jeroboão filho de
-Nabate ele desposou ainda Jezabel filha de Eti-Baal rei dos sidônios e chegou até
-render culto a Baal prostrando-se diante dele.
+A sua história começa em 1Reis 16:31:  
+quando a Bíblia afirma acerca de um homem chamado Acabe que como   
+se não lhe bastasse andar nos pecados de Jeroboão filho de  
+Nabate ele desposou ainda Jezabel filha de Eti-Baal rei dos sidônios e chegou até  
+render culto a Baal prostrando-se diante dele.  
 
 Então quem é Jezabel?
 - Posso simplificar através de uma palavra ou de uma frase:
