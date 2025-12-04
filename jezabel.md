@@ -130,15 +130,15 @@ E quando você percebe voce vira:
 -👉 virou marionete, e outra passa a responder por você  
 -👉 ela fala por você.  
 -👉 ela decide por você.  
--👉   **e você vira sombra** 
+-👉   **e você vira sombra**
 
 - Jezabel apaga a identidade de quem está perto  
--👉  e você se escraviza.  
--👉  fala por você,  
--👉  pensa por você,  
--👉  gesticula para você,  
--👉  comanda você,  
--👉  dita comportamento com os olhos.  
+- 👉  e você se escraviza.  
+- 👉  fala por você,  
+- 👉  pensa por você,  
+- 👉  gesticula para você,  
+- 👉  comanda você,  
+- 👉  dita comportamento com os olhos.  
 
 A pessoa dominada se torna sombra, presença apagada, reflexo ofuscado.
 
