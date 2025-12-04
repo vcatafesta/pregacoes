@@ -215,11 +215,8 @@ Diga:
 
 Ela consegue trazer para dentro de Israel, uma religão monoteísta, fechada, onde só Deus adorado,  
 que foi aprendido pelos antepassados  
-
-- 👉  mas ela é tão crente, tão crente que consegue instituir uma matriz de sua religão em Israel,  
-- 👉  Vai ser crente assim no infermo!"
-
-
+- 👉   ela é tão crente, tão crente que consegue instituir uma matriz de sua religão em Israel,  
+- 👉   Vai ser crente assim no infermo!"
 - 👉  trouxe profetas,  
 - 👉  instituiu sacerdotes,  
 - 👉  implantou altares,  
