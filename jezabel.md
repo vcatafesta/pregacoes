@@ -209,11 +209,16 @@ Diga:
 
 ---
 
-## 00:12 — Jezabel era extremamente religiosa
-Ela não era apenas adepta ao culto de Baal —  
-era **missionária do culto de Baal**.
+##  Jezabel era extremamente religiosa
+- Jezabel é extremamente religiosa, mais do que eu e você  
+- Ela não é só religiosa ela é ativista da sua religião  
 
-Ela:
+Ela consegue trazer para dentro de Israel, uma religão monoteísta, fechada, onde só Deus adorado,  
+que foi aprendido pelos antepassados  
+
+- 👉  mas ela é tão crente, tão crente que consegue instituir uma matriz de sua religão em Israel,  
+- 👉  Vai ser crente assim no infermo!"
+
 
 - 👉  trouxe profetas,  
 - 👉  instituiu sacerdotes,  
@@ -221,7 +226,7 @@ Ela:
 - 👉  estruturou a idolatria,  
 - 👉  transformou Israel numa matriz baalita.
 
-Jezabel “vivia o que pregava, e pregava o que vivia” —  
+**Jezabel “vivia o que pregava, e pregava o que vivia”**  
 só que pregava demônios.
 
 Era “crente” — mas do lado errado.
