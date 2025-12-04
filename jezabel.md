@@ -156,17 +156,16 @@ Prefira pessoas simples, prefira pessoas, gente que não:
 São extremamente envolventes, e eu não estou falando de pessoa capaz,   
 eu estou falando de gente **maligna**  
 
-Então cuidado com:
-
+Então cuidado com:  
 - 👉  amizades tóxicas,  
 - 👉  relacionamentos,  
 - 👉  casas,  
 - 👉  ministérios,  
-- 👉  ambientes profissionais.
+- 👉  ambientes profissionais.  
 
-- Gente que entra na casa de uma mulher e faz essa mulher perder o sentido do que ela é  
-- e você passa a ser alguém lá atrás e ela lá à frente, demita esta empregada o quanto  
-- antes porque agora ela manda em você, daqui a pouco ela estará no seu lugar  
+Gente que entra na casa de uma mulher e faz essa mulher perder o sentido do que ela é  
+e você passa a ser alguém lá atrás e ela lá à frente, demita esta empregada o quanto  
+antes porque agora ela manda em você, daqui a pouco ela estará no seu lugar  
 
 Não é um atributo apenas desempregados tem patrão que se comporta da mesma maneira
 - 👉   responde por você  
