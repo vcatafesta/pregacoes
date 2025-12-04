@@ -112,7 +112,7 @@ E aqui entra uma oração séria:
 ## Jezabel: dominadora e carismática
 Acabe casa com Jezabel por conta de um acordo político,  
 **mas não demorou nada para ele se apaixonar por ela, porque pessoas como Jezabel são:**
-- 👉   **Apaixonantes, pois é**
+- 👉   **Apaixonantes:**
 - 👉   Jezabel é dominadora,
 - 👉   mas também carismática
 
@@ -129,9 +129,10 @@ E quando você percebe voce vira:
 
 - 👉 um bichino de presépío, que só balança a cabeça.  
 - 👉 virou marionete, e outra passa a responder por você  
-- 👉 virou sombra.  
 - 👉 ela fala por você.  
 - 👉 ela decide por você.  
+- 👉   **e você vira sombra**  
+
 - Jezabel apaga a identidade de quem está perto
 - 👉  e você se escraviza.
 - 👉  fala por você,  
