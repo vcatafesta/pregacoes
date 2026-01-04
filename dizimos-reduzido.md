@@ -1,3 +1,6 @@
+# OFERTAS — QUANDO JESUS É SENHOR, NADA É NOSSO  
+*(Versão condensada – tópicos para leitura ou apoio)*
+
 ## 👉 Confessamos que Jesus é **Senhor**  
 (Romanos 10:9)
 
@@ -5,8 +8,10 @@
 
 ---
 
-## 👉 Senhor não é título  
-- 👉   Senhor é **dono**
+## VERDADE CENTRAL
+- 👉   Confessamos que Jesus é **Senhor**  
+- 👉   Senhor não é título simbólico  
+- 👉   Senhor é **dono, autoridade e governo**
 
 ---
 
