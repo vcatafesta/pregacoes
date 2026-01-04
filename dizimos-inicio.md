@@ -10,8 +10,8 @@ Quando confessamos que Jesus é Senhor, isso não é um título simbólico.
 **Senhor é dono. Senhor é autoridade. Senhor é governo.**
 
 No tempo bíblico, senhor não era alguém que ajudava.
-Era alguém que mandava.
-Era alguém a quem se pertencia.
+- Era alguém que mandava.
+- Era alguém a quem se pertencia.
 
 Por isso a própria Palavra afirma:
 > “Fostes comprados por alto preço.”
