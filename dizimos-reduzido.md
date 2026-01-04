@@ -1,3 +1,8 @@
+## INTRODUÇÃO
+
+Irmãos, vamos direto à Palavra, sem rodeios.
+
+
 # OFERTAS — QUANDO JESUS É SENHOR, NADA É NOSSO  
 *(Versão condensada – tópicos para leitura ou apoio)*
 
