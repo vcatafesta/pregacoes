@@ -35,22 +35,17 @@ Irmãos, vamos direto à Palavra, sem rodeios.
 
 👉 **Tudo é dEle**
 
-## O QUE É OFERTA? 👉    OFERTA NÃO É DOAÇÃO!  
+## O QUE É OFERTA?
 (2 Coríntios 9:7)
 
 > “Cada um contribua segundo tiver proposto no coração, não com tristeza ou por necessidade; porque Deus ama a quem dá com alegria.”
 
+- **Oferta não é doação!**  
 - **Oferta é reconhecimento de senhorio**  
 - **Oferta não é doação**  
 - **Oferta não é ajuda** 
 - **Deus não quer dinheiro forçado**  
 - **Mas também não aceita um coração preso ao dinheiro** 
-
-## A PERGUNTA NUNCA FOI: 
-- **Quanto vou dar?**
-
-## A PERGUNTA SEMPRE FOI:  
-- **Quem governa o seu coração**
 
 ## JESUS ENSINA O VALOR DO REINO:
 
@@ -77,6 +72,12 @@ Jesus disse:
 - 👉   O Reino não aceita concorrentes  
 - 👉   O Reino não divide o coração  
 - 👉   Quem entende o valor, entrega tudo  
+
+## A PERGUNTA NUNCA FOI: 
+- **Quanto vou dar?**
+
+## A PERGUNTA SEMPRE FOI:  
+- **Quem governa o seu coração**
 
 ## VERDADE FINAL
 
