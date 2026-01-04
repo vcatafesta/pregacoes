@@ -3,7 +3,7 @@
 👉 ## Confessamos que Jesus é **Senhor**  
 (Romanos 10:9)
 
-👉 ## Senhor não é título  
+## 👉    Senhor não é título  
 👉 Senhor é **dono**
 
 ---
