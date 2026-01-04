@@ -77,7 +77,9 @@ Jesus disse:
 - **Quanto vou dar?**
 
 ## A PERGUNTA SEMPRE FOI:  
-- **Quem governa o seu coração**
+- **Quem governa o seu coração ?**
+Porque — sem hipocrisia —
+- **onde está o nosso tesouro, ali está o nosso senhor**
 
 ## VERDADE FINAL
 
