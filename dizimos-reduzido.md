@@ -1,25 +1,25 @@
 # OFERTAS — QUANDO JESUS É SENHOR, NADA É NOSSO
 
-👉 Confessamos que Jesus é **Senhor**  
+👉 ## Confessamos que Jesus é **Senhor**  
 (Romanos 10:9)
 
-👉 Senhor não é título  
+👉 ## Senhor não é título  
 👉 Senhor é **dono**
 
 ---
 
-👉 Fomos comprados por alto preço  
+👉 ##Fomos comprados por alto preço  
 (1 Coríntios 6:20)
 
-👉 Não pertencemos mais a nós mesmos  
+👉 ##Não pertencemos mais a nós mesmos  
 👉 Somos servos — **escravos de Cristo**
 
-👉 Escravo não decide  
+👉 ##Escravo não decide  
 👉 Escravo administra o que é do senhor
 
 ---
 
-👉 Se Ele é Senhor:
+👉 ##Se Ele é Senhor:  
 • dinheiro  
 • vida  
 • vontade  
@@ -28,7 +28,7 @@
 
 ---
 
-👉 Oferta não é doação  
+👉 ##Oferta não é doação  
 👉 Oferta é **reconhecimento de senhorio**
 
 👉 Deus não quer obrigação  
@@ -37,7 +37,7 @@
 
 ---
 
-👉 Jesus ensina:
+👉 ##Jesus ensina:
 • Tesouro no campo — quem acha, vende tudo  
 (Mateus 13:44)
 
