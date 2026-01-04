@@ -65,6 +65,36 @@
 
 ---
 
+## 👉 Jesus ensina o valor do Reino
+
+- Tesouro no campo  
+  (Mateus 13:44)
+
+> “O reino dos céus é semelhante a um tesouro oculto no campo, o qual certo homem, tendo-o achado, escondeu. E, transbordante de alegria, vai, vende tudo o que tem e compra aquele campo.”
+
+- Pérola de grande valor  
+  (Mateus 13:45–46)
+
+> “O reino dos céus é ainda semelhante a um homem que negocia e procura boas pérolas; e, tendo achado uma pérola de grande valor, vende tudo o que possui e a compra.”
+
+---
+
+## 👉 Quanto então custa o Reino?
+
+👉 **Custa tudo.**
+
+Jesus disse:  
+(Mateus 10:37–39)
+
+> “Quem ama seu pai ou sua mãe mais do que a mim não é digno de mim; quem ama seu filho ou sua filha mais do que a mim não é digno de mim; e quem não toma a sua cruz e vem após mim não é digno de mim.  
+> Quem acha a sua vida perdê-la-á; quem, todavia, perde a vida por minha causa achá-la-á.”
+
+👉 O Reino não aceita concorrentes  
+👉 O Reino não divide o coração  
+👉 Quem entende o valor, entrega tudo
+
+---
+
 ## 👉 Verdade final
 
 👉 **A oferta revela quem reina**
