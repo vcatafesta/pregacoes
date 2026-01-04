@@ -61,27 +61,12 @@
 
 > “O reino dos céus é ainda semelhante a um homem que negocia e procura boas pérolas; e, tendo achado uma pérola de grande valor, vende tudo o que possui e a compra.”
 
-👉 Quem entende, entrega tudo
-
----
-
-## 👉 Jesus ensina o valor do Reino
-
-- Tesouro no campo  
-  (Mateus 13:44)
-
-> “O reino dos céus é semelhante a um tesouro oculto no campo, o qual certo homem, tendo-o achado, escondeu. E, transbordante de alegria, vai, vende tudo o que tem e compra aquele campo.”
-
-- Pérola de grande valor  
-  (Mateus 13:45–46)
-
-> “O reino dos céus é ainda semelhante a um homem que negocia e procura boas pérolas; e, tendo achado uma pérola de grande valor, vende tudo o que possui e a compra.”
-
 ---
 
 ## 👉 Quanto então custa o Reino?
 
 👉 **Custa tudo.**
+👉 **Quem entende, entrega tudo**
 
 Jesus disse:  
 (Mateus 10:37–39)
