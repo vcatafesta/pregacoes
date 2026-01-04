@@ -26,10 +26,10 @@
 
 ## 👉 Se ELE é SENHOR, então:
 
-- **dinheiro  
-- bens  
-- vida  
-- vontade** 
+- **dinheiro**  
+- **bens**  
+- **vida**  
+- **vontade**  
 
 👉 **Tudo é dEle**
 
