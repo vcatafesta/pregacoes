@@ -40,11 +40,11 @@
 
 > “Cada um contribua segundo tiver proposto no coração, não com tristeza ou por necessidade; porque Deus ama a quem dá com alegria.”
 
-👉   Oferta é **reconhecimento de senhorio**  
-👉   Oferta não é doação  
-👉   Oferta não é ajuda  
-👉   Deus não quer dinheiro forçado  
-👉   Mas também não aceita um coração preso ao dinheiro  
+- **Oferta é **reconhecimento de senhorio**  
+- **Oferta não é doação**  
+- **Oferta não é ajuda** 
+- **Deus não quer dinheiro forçado**  
+- **Mas também não aceita um coração preso ao dinheiro** 
 ---
 
 ## 👉 A pergunta nunca foi: 
