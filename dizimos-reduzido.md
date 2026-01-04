@@ -40,7 +40,7 @@
 
 > “Cada um contribua segundo tiver proposto no coração, não com tristeza ou por necessidade; porque Deus ama a quem dá com alegria.”
 
-- **Oferta é **reconhecimento de senhorio**  
+- **Oferta é reconhecimento de senhorio**  
 - **Oferta não é doação**  
 - **Oferta não é ajuda** 
 - **Deus não quer dinheiro forçado**  
@@ -79,10 +79,9 @@ Jesus disse:
 > “Quem ama seu pai ou sua mãe mais do que a mim não é digno de mim; quem ama seu filho ou sua filha mais do que a mim não é digno de mim; e quem não toma a sua cruz e vem após mim não é digno de mim.  
 > Quem acha a sua vida perdê-la-á; quem, todavia, perde a vida por minha causa achá-la-á.”
 
-👉 O Reino não aceita concorrentes  
-👉 O Reino não divide o coração  
-👉 Quem entende o valor, entrega tudo
-
+- 👉   O Reino não aceita concorrentes  
+- 👉   O Reino não divide o coração  
+- 👉   Quem entende o valor, entrega tudo  
 ---
 
 ## VERDADE FINAL
