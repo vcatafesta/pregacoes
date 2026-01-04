@@ -14,7 +14,7 @@ Irmãos, vamos direto à Palavra, sem rodeios.
 - 👉   Senhor não é título simbólico  
 - 👉   Senhor é **dono, autoridade e governo**
 
-## 👉 Fomos comprados por alto preço/NOSSA POSIÇÃO  
+## FOMOS COMPRADOS POR ALTO PREÇO/NOSSA POSIÇÃO  
 (1 Coríntios 6:20)
 
 > “Porque fostes comprados por preço. Agora, pois, glorificai a Deus no vosso corpo.”
@@ -26,7 +26,7 @@ Irmãos, vamos direto à Palavra, sem rodeios.
 - 👉   Escravo não decide o que é seu  
 - 👉   Escravo administra o que pertence ao senhor  
 
-## 👉 Se ELE é SENHOR, então:
+## SE ELE É SENHOR, ENTÃO:
 
 - 👉    **dinheiro**  
 - 👉    **bens**  
@@ -35,7 +35,7 @@ Irmãos, vamos direto à Palavra, sem rodeios.
 
 👉 **Tudo é dEle**
 
-## O QUE É OFERTA? 👉    Oferta não é doação  
+## O QUE É OFERTA? 👉    OFERTA NÃO É DOAÇÃO!  
 (2 Coríntios 9:7)
 
 > “Cada um contribua segundo tiver proposto no coração, não com tristeza ou por necessidade; porque Deus ama a quem dá com alegria.”
@@ -46,13 +46,13 @@ Irmãos, vamos direto à Palavra, sem rodeios.
 - **Deus não quer dinheiro forçado**  
 - **Mas também não aceita um coração preso ao dinheiro** 
 
-## 👉 A pergunta nunca foi: 
+## A PERGUNTA NUNCA FOI: 
 - **Quanto vou dar?**
 
-## 👉 A pergunta sempre foi:  
+## A PERGUNTA SEMPRE FOI:  
 - **Quem governa o seu coração**
 
-## 👉 Jesus ensina o valor do Reino
+## JESUS ENSINA O VALOR DO REINO:
 
 - Tesouro no campo  
   (Mateus 13:44)
