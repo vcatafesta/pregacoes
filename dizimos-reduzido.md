@@ -87,11 +87,11 @@ Jesus disse:
 
 ## VERDADE FINAL
 
-👉   **A oferta revela quem reina**
+👉   **A oferta revela quem reina**  
 👉   Oferta não compra bênção  
-👉   Oferta **confessa senhorio**
+👉   Oferta **confessa senhorio**  
 
-👉   Ao ofertar, declaramos:
+👉   Ao ofertar, declaramos:  
 • Jesus é dono da minha vida  
 • do meu dinheiro  
 • do meu futuro  
