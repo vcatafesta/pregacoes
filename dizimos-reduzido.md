@@ -79,7 +79,7 @@ Jesus disse:
 ## A PERGUNTA SEMPRE FOI:  
 - **Quem governa o seu coração ?**  
 Porque — sem hipocrisia —  
-- **Porque onde estiver o vosso tesouro, aí estará também o vosso coração**
+- **Onde estiver o vosso tesouro, aí estará também o vosso coração**
 
 ## VERDADE FINAL
 
