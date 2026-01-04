@@ -43,13 +43,12 @@
 👉   Oferta é **reconhecimento de senhorio**  
 👉   Oferta não é doação  
 👉   Oferta não é ajuda  
-👉   Oferta é **reconhecimento de senhorio**  
 👉   Deus não quer dinheiro forçado  
 👉   Mas também não aceita um coração preso ao dinheiro  
 ---
 
 ## 👉 A pergunta nunca foi: 
-- Quanto vou dar?
+- **Quanto vou dar?**
 
 ## 👉 A pergunta sempre foi:  
 - **Quem governa o seu coração**
@@ -88,17 +87,15 @@ Jesus disse:
 
 ## VERDADE FINAL
 
-👉 **A oferta revela quem reina**
+👉   **A oferta revela quem reina**
+👉   Oferta não compra bênção  
+👉   Oferta **confessa senhorio**
 
-👉 Oferta não compra bênção  
-👉 Oferta **confessa senhorio**
-
-👉 Ao ofertar, declaramos:
+👉   Ao ofertar, declaramos:
 • Jesus é dono da minha vida  
 • do meu dinheiro  
 • do meu futuro  
-• da minha vontade
-
+• da minha vontade  
 
 ## ENCERRAMENTO
 
