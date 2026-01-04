@@ -66,7 +66,6 @@
 ## 👉 Quanto então custa o Reino?
 
 👉 **Custa tudo.**
-👉 **Quem entende, entrega tudo**
 
 Jesus disse:  
 (Mateus 10:37–39)
