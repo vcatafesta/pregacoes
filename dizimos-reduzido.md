@@ -17,16 +17,17 @@
 
 👉   Fomos comprados por alto preço  
 👉   Somos servos — **escravos de Cristo**  
-👉 - Escravo não é dono  
-👉 - Escravo administra  
+👉   Escravo não é dono  
+👉   Escravo administra  
 👉   Escravo não decide o que é seu  
 👉   Escravo administra o que pertence ao senhor  
 
 ---
 
-## 👉 Se Ele é Senhor
+## 👉 Se ELE é SENHOR, então:
 
 - dinheiro  
+- bens  
 - vida  
 - vontade  
 
@@ -34,23 +35,17 @@
 
 ---
 
-## 👉 Oferta não é doação  
-- Oferta é **reconhecimento de senhorio**
-
+## O QUE É OFERTA? 👉    Oferta não é doação  
 (2 Coríntios 9:7)
 
 > “Cada um contribua segundo tiver proposto no coração, não com tristeza ou por necessidade; porque Deus ama a quem dá com alegria.”
 
----
-## O QUE É OFERTA
-
-👉 Oferta não é doação  
-👉 Oferta não é ajuda  
-👉 Oferta é **reconhecimento de senhorio**
-
-👉 Deus não quer dinheiro forçado  
-👉 Mas também não aceita um coração preso ao dinheiro
-
+👉   Oferta é **reconhecimento de senhorio**  
+👉   Oferta não é doação  
+👉   Oferta não é ajuda  
+👉   Oferta é **reconhecimento de senhorio**  
+👉   Deus não quer dinheiro forçado  
+👉   Mas também não aceita um coração preso ao dinheiro  
 ---
 
 ## 👉 A pergunta nunca foi: 
