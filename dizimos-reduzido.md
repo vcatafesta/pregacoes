@@ -99,7 +99,5 @@ Jesus disse:
 
 ## ENCERRAMENTO
 
-👉 Quem é Senhor da sua vida hoje,  
-o bolso sempre revela  
-antes da boca
+👉   **Quem é Senhor da sua vida hoje?**
 
