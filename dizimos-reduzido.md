@@ -6,7 +6,7 @@
 ---
 
 ## 👉 Senhor não é título  
-- Senhor é **dono**
+- 👉   Senhor é **dono**
 
 ---
 
@@ -15,21 +15,21 @@
 
 > “Porque fostes comprados por preço. Agora, pois, glorificai a Deus no vosso corpo.”
 
-👉   Fomos comprados por alto preço  
-👉   Somos servos — **escravos de Cristo**  
-👉   Escravo não é dono  
-👉   Escravo administra  
-👉   Escravo não decide o que é seu  
-👉   Escravo administra o que pertence ao senhor  
+- 👉   Fomos comprados por alto preço  
+- 👉   Somos servos — **escravos de Cristo**  
+- 👉   Escravo não é dono  
+- 👉   Escravo administra  
+- 👉   Escravo não decide o que é seu  
+- 👉   Escravo administra o que pertence ao senhor  
 
 ---
 
 ## 👉 Se ELE é SENHOR, então:
 
-- **dinheiro**  
-- **bens**  
-- **vida**  
-- **vontade**  
+- 👉    **dinheiro**  
+- 👉    **bens**  
+- 👉    **vida**  
+- 👉    **vontade**  
 
 👉 **Tudo é dEle**
 
