@@ -1,26 +1,18 @@
 # OFERTAS — QUANDO JESUS É SENHOR, NADA É NOSSO
 *(Versão condensada – tópicos para leitura ou apoio)*
 
----
-
 ## INTRODUÇÃO
 Irmãos, vamos direto à Palavra, sem rodeios.
-
----
 
 ## 👉 Confessamos que Jesus é **Senhor**  
 (Romanos 10:9)
 
 > “Se, com a tua boca, confessares Jesus como Senhor e, em teu coração, creres que Deus o ressuscitou dentre os mortos, serás salvo.”
 
----
-
 ## VERDADE CENTRAL
 - 👉   Confessamos que Jesus é **Senhor**  
 - 👉   Senhor não é título simbólico  
 - 👉   Senhor é **dono, autoridade e governo**
-
----
 
 ## 👉 Fomos comprados por alto preço/NOSSA POSIÇÃO  
 (1 Coríntios 6:20)
@@ -34,8 +26,6 @@ Irmãos, vamos direto à Palavra, sem rodeios.
 - 👉   Escravo não decide o que é seu  
 - 👉   Escravo administra o que pertence ao senhor  
 
----
-
 ## 👉 Se ELE é SENHOR, então:
 
 - 👉    **dinheiro**  
@@ -44,8 +34,6 @@ Irmãos, vamos direto à Palavra, sem rodeios.
 - 👉    **vontade**  
 
 👉 **Tudo é dEle**
-
----
 
 ## O QUE É OFERTA? 👉    Oferta não é doação  
 (2 Coríntios 9:7)
@@ -57,15 +45,12 @@ Irmãos, vamos direto à Palavra, sem rodeios.
 - **Oferta não é ajuda** 
 - **Deus não quer dinheiro forçado**  
 - **Mas também não aceita um coração preso ao dinheiro** 
----
 
 ## 👉 A pergunta nunca foi: 
 - **Quanto vou dar?**
 
 ## 👉 A pergunta sempre foi:  
 - **Quem governa o seu coração**
-
----
 
 ## 👉 Jesus ensina o valor do Reino
 
@@ -78,8 +63,6 @@ Irmãos, vamos direto à Palavra, sem rodeios.
   (Mateus 13:45–46)
 
 > “O reino dos céus é ainda semelhante a um homem que negocia e procura boas pérolas; e, tendo achado uma pérola de grande valor, vende tudo o que possui e a compra.”
-
----
 
 ## 👉 Quanto então custa o Reino?
 
@@ -94,7 +77,6 @@ Jesus disse:
 - 👉   O Reino não aceita concorrentes  
 - 👉   O Reino não divide o coração  
 - 👉   Quem entende o valor, entrega tudo  
----
 
 ## VERDADE FINAL
 
