@@ -10,26 +10,17 @@
 
 ---
 
-## 👉 Fomos comprados por alto preço  
+## 👉 Fomos comprados por alto preço/NOSSA POSIÇÃO  
 (1 Coríntios 6:20)
 
 > “Porque fostes comprados por preço. Agora, pois, glorificai a Deus no vosso corpo.”
 
-- Não pertencemos mais a nós mesmos  
-- Somos servos — **escravos de Cristo**  
-- Escravo administra  
-- Escravo não é dono
-
----
-## NOSSA POSIÇÃO
-
-👉 Fomos comprados por alto preço  
-👉 Não pertencemos mais a nós mesmos  
-👉 Somos servos  
-👉 A Escritura vai além: **escravos de Cristo**
-
-👉 Escravo não decide o que é seu  
-👉 Escravo administra o que pertence ao senhor
+👉   Fomos comprados por alto preço  
+👉   Somos servos — **escravos de Cristo**  
+👉 - Escravo não é dono  
+👉 - Escravo administra  
+👉   Escravo não decide o que é seu  
+👉   Escravo administra o que pertence ao senhor  
 
 ---
 
