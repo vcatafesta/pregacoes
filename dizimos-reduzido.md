@@ -1,12 +1,10 @@
 # OFERTAS — QUANDO JESUS É SENHOR, NADA É NOSSO
 
-👉 ## Confessamos que Jesus é **Senhor**  
+##👉    Confessamos que Jesus é **Senhor**  
 (Romanos 10:9)
 
 ## 👉    Senhor não é título  
-👉 Senhor é **dono**
-
----
+- Senhor é **dono**
 
 👉 ##Fomos comprados por alto preço  
 (1 Coríntios 6:20)
