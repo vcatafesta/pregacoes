@@ -21,6 +21,17 @@
 - Escravo não é dono
 
 ---
+## NOSSA POSIÇÃO
+
+👉 Fomos comprados por alto preço  
+👉 Não pertencemos mais a nós mesmos  
+👉 Somos servos  
+👉 A Escritura vai além: **escravos de Cristo**
+
+👉 Escravo não decide o que é seu  
+👉 Escravo administra o que pertence ao senhor
+
+---
 
 ## 👉 Se Ele é Senhor
 
@@ -40,12 +51,22 @@
 > “Cada um contribua segundo tiver proposto no coração, não com tristeza ou por necessidade; porque Deus ama a quem dá com alegria.”
 
 ---
+## O QUE É OFERTA
 
-## 👉 A pergunta não é  
-- Quanto vou dar
+👉 Oferta não é doação  
+👉 Oferta não é ajuda  
+👉 Oferta é **reconhecimento de senhorio**
 
-## 👉 A pergunta é  
-- **Quem governa o coração**
+👉 Deus não quer dinheiro forçado  
+👉 Mas também não aceita um coração preso ao dinheiro
+
+---
+
+## 👉 A pergunta nunca foi: 
+- Quanto vou dar?
+
+## 👉 A pergunta sempre foi:  
+- **Quem governa o seu coração**
 
 ---
 
@@ -79,7 +100,23 @@ Jesus disse:
 
 ---
 
-## 👉 Verdade final
+## VERDADE FINAL
 
 👉 **A oferta revela quem reina**
+
+👉 Oferta não compra bênção  
+👉 Oferta **confessa senhorio**
+
+👉 Ao ofertar, declaramos:
+• Jesus é dono da minha vida  
+• do meu dinheiro  
+• do meu futuro  
+• da minha vontade
+
+
+## ENCERRAMENTO
+
+👉 Quem é Senhor da sua vida hoje,  
+o bolso sempre revela  
+antes da boca
 
