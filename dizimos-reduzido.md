@@ -1,10 +1,12 @@
-## INTRODUÇÃO
+# OFERTAS — QUANDO JESUS É SENHOR, NADA É NOSSO
+*(Versão condensada – tópicos para leitura ou apoio)*
 
+---
+
+## INTRODUÇÃO
 Irmãos, vamos direto à Palavra, sem rodeios.
 
-
-# OFERTAS — QUANDO JESUS É SENHOR, NADA É NOSSO  
-*(Versão condensada – tópicos para leitura ou apoio)*
+---
 
 ## 👉 Confessamos que Jesus é **Senhor**  
 (Romanos 10:9)
