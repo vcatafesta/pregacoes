@@ -102,50 +102,50 @@ Você consegue aplaudir a Jesus pela sua palavra agora?
 
 ## 1. O POVO POSICIONADO E A AFRONTA DE GOLIAS
 
-Querida igreja, nós estamos diante de um panorama devastador.
-Israel estava sendo governado e liderado por um rei que já estava decaído da posição inicial de uma semente pura a quem Deus havia escolhido.
-Eu estou falando de Saul.
-Saul começou o seu governo como um escolhido de Deus.
-Diferente do que algumas pessoas pensam, Saul não foi escolhido pelo povo.
-Saul foi escolhido por Deus.
-Deteriorou-se no processo,
-Rebeliou-se contra Deus,
-Deu lugar ao orgulho e a egolatria, que consegue, na maioria das vezes, ser pior do que a idolatria.
-Eu vou repetir.
-Ele deu lugar a egolatria.
-E a egolatria, que é a idolatria ao próprio ego, é se colocar no centro como o seu próprio Deus pode ser pior do que a idolatria.
-Saul se tornou um homem sem limites.
-Saul se tornou um homem manipulador.
-Saul se tornou um homem capaz de se preocupar muito mais com o que as pessoas pensavam sobre ele do que com o que Deus sabia sobre ele.
-E diante de um momento de crise espiritual, de uma liderança, Satanás incita o coração dos filisteus uma vez mais.
-E agora eles não vêm lutar contra Israel de uma maneira comum.
-Eles agora trazem um ineditismo.
-Eles agora trazem uma especialidade.
-Eles agora trazem uma anomalia militar.
-Normalmente quando havia uma guerra, homens de um exército lutavam contra homens de outro exército.
-Mas desta feita eles não querem assim.
-Desta feita, eles pegam um homem do exército deles, a saber, um gigante chamado Golias;
-E eles começam a provocar Israel, dizendo: "Nós queremos um homem para lutar contra nós também".
-Na altura do texto que eu li, você vai perceber que Israel está posicionado para a batalha.
-Quem está comigo Diga aleluia.
-E quando Israel está posicionado para a batalha, a primeira palavra de afronta chega.
-E a primeira palavra de afronta é esta: Porque vocês estão posicionados?
-Eu vou repetir para quem não entendeu entender.
-**Satanás odeia ver a igreja posicionada**.
-**O inferno odeia ver uma família posicionada**.
-Os demônios rangem os dentes quando te veem sentadinho nesse banco posicionado.
-**A guerra não começou**.
-**Israel não falou**.
-**Saul não falou**.
-**Davi ainda não chegou**.
-**Não tem pedra ainda**.
-**Não tem funda ainda**.
-**Não tem grito ainda**.
-Mas quando o filisteu percebe que o povo de Deus está posicionado, eles fazem a leitura do mundo espiritual.
-**Se estão posicionados, não serão derrotados.**
-Aleluia. 
-Eu estou me lembrando de um homem orgulhoso.
-Eu estou me lembrando de um homem vaidoso que participou de uma cerimônia na casa real, atravessou a porta do rei e viu um homem chamado Mardoqueu de pé.
+Querida igreja, nós estamos diante de um panorama devastador.  
+Israel estava sendo governado e liderado por um rei que já estava decaído da posição inicial de uma semente pura a quem Deus havia escolhido.  
+Eu estou falando de Saul.  
+Saul começou o seu governo como um escolhido de Deus.  
+Diferente do que algumas pessoas pensam, Saul não foi escolhido pelo povo.  
+Saul foi escolhido por Deus.  
+Deteriorou-se no processo,  
+Rebeliou-se contra Deus,  
+Deu lugar ao orgulho e a egolatria, que consegue, na maioria das vezes, ser pior do que a idolatria.  
+Eu vou repetir.  
+Ele deu lugar a egolatria.  
+E a egolatria, que é a idolatria ao próprio ego, é se colocar no centro como o seu próprio Deus pode ser pior do que a idolatria.  
+Saul se tornou um homem sem limites.  
+Saul se tornou um homem manipulador.  
+Saul se tornou um homem capaz de se preocupar muito mais com o que as pessoas pensavam sobre ele do que com o que Deus sabia sobre ele.  
+E diante de um momento de crise espiritual, de uma liderança, Satanás incita o coração dos filisteus uma vez mais.  
+E agora eles não vêm lutar contra Israel de uma maneira comum.  
+Eles agora trazem um ineditismo.  
+Eles agora trazem uma especialidade.  
+Eles agora trazem uma anomalia militar.  
+Normalmente quando havia uma guerra, homens de um exército lutavam contra homens de outro exército.  
+Mas desta feita eles não querem assim.  
+Desta feita, eles pegam um homem do exército deles, a saber, um gigante chamado Golias;  
+E eles começam a provocar Israel, dizendo: "Nós queremos um homem para lutar contra nós também".  
+Na altura do texto que eu li, você vai perceber que Israel está posicionado para a batalha.  
+Quem está comigo Diga aleluia.  
+E quando Israel está posicionado para a batalha, a primeira palavra de afronta chega.  
+E a primeira palavra de afronta é esta: Porque vocês estão posicionados?  
+Eu vou repetir para quem não entendeu entender.  
+**Satanás odeia ver a igreja posicionada**.  
+**O inferno odeia ver uma família posicionada**.  
+Os demônios rangem os dentes quando te veem sentadinho nesse banco posicionado.  
+**A guerra não começou**.  
+**Israel não falou**.  
+**Saul não falou**.  
+**Davi ainda não chegou**.   
+**Não tem pedra ainda**.  
+**Não tem funda ainda**.  
+**Não tem grito ainda**.  
+Mas quando o filisteu percebe que o povo de Deus está posicionado, eles fazem a leitura do mundo espiritual.  
+**Se estão posicionados, não serão derrotados.**  
+Aleluia.   
+Eu estou me lembrando de um homem orgulhoso.  
+Eu estou me lembrando de um homem vaidoso que participou de uma cerimônia na casa real, atravessou a porta do rei e viu um homem chamado Mardoqueu   de pé.
 Quando esse homem Amã atravessou, Mardoqueu não se dobrou diante dele.
 Quando Amã chegou em casa, começou a fazer uma festa celebrando o convite que havia recebido e a renovação do convite para o dia seguinte.
 Mas de repente o semblante dele caiu, a voz embargou, a festa parou.
