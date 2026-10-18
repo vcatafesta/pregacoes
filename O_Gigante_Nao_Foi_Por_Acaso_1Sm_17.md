@@ -145,21 +145,26 @@ Mas quando o filisteu percebe que o povo de Deus está posicionado, eles fazem a
 **Se estão posicionados, não serão derrotados.**  
 Aleluia.   
 Eu estou me lembrando de um homem orgulhoso.  
-Eu estou me lembrando de um homem vaidoso que participou de uma cerimônia na casa real, atravessou a porta do rei e viu um homem chamado Mardoqueu   de pé.
-Quando esse homem Amã atravessou, Mardoqueu não se dobrou diante dele.
-Quando Amã chegou em casa, começou a fazer uma festa celebrando o convite que havia recebido e a renovação do convite para o dia seguinte.
-Mas de repente o semblante dele caiu, a voz embargou, a festa parou.
-Ele olhou para Zé e sua mulher e disse: "Mas nada disso me satisfaz, enquanto eu vir o judeu Mardoqueu assentado à porta do rei." Sabe o que a mãe estava dizendo?
-Crente posicionado me irrita.
-Crente posicionado me desestabiliza.
-Crente posicionado [grito] é sinônimo de que Deus vai trabalhar. >> Por que vocês estão aí posicionados? [risadas] Dá-me um homem para lutar comigo. >> Dá-me um homem para lutar comigo. >> Golias não chegava a 3 m de altura.
-Guarde isso.
-Golias não chegava a 3 m de altura.
-Quando eu pensava em Golias, quando eu era criancinha na escola dominical, eu pensava que ele era do tamanho de um prédio de cinco andares. **O diabo vem com uma pressão** que faz a gente acreditar que a coisa é pior do que é. >> A Bíblia diz que quando Deus escolheu Saul, Saul do ombro para cima sobressaía-se entre todos os homens de Israel.
-Quando o filisteu gritou, dá-me um homem, quem deveria ter ido?
-Saul.
-Quem deveria ter ido?
-Saul.
+Eu estou me lembrando de um homem vaidoso que participou de uma cerimônia na casa real,  
+atravessou a porta do rei e viu um homem chamado Mardoqueu de pé.  
+Quando esse homem Amã atravessou, Mardoqueu não se dobrou diante dele.  
+Quando Amã chegou em casa, começou a fazer uma festa celebrando o convite que havia recebido e a renovação do convite para o dia seguinte.  
+Mas de repente o semblante dele caiu, a voz embargou, a festa parou.  
+Ele olhou para Zeres e sua mulher e disse: "Mas nada disso me satisfaz, enquanto eu vir o judeu Mardoqueu assentado à porta do rei." Sabe o que a Amã estava dizendo?  
+**Crente posicionado me irrita**.  
+**Crente posicionado me desestabiliza**.  
+**Crente posicionado é sinônimo de que Deus vai trabalhar**.  
+Por que vocês estão aí posicionados?  
+Dá-me um homem para lutar comigo.  
+Dá-me um homem para lutar comigo.  
+Golias não chegava a 3 m de altura. Guarde isso.  
+Golias, não tem o tamanho de um prédio de cinco andares!  
+**O diabo vem com uma pressão** Que faz a gente acreditar que a coisa é pior do que é.  
+A Bíblia diz que quando Deus escolheu Saul, Saul do ombro para cima sobressaía-se entre todos os homens de Israel.  
+Quando o filisteu gritou, dá-me um homem, quem deveria ter ido?  
+**Saul**.  
+Quem deveria ter ido?  
+**Saul**.  
 Quem deveria ter ido? >> Mas o ungido que está em desobediência se torna covarde e incapaz de lutar as guerras de Deus. [risadas] >> Quando ele disse: "Dá-me [grito] um homem".
 Oh, glória!
 A Bíblia diz que Israel ficou atônito, Saul ficou atônito e eu entreguei uma chave pra igreja na leitura.
