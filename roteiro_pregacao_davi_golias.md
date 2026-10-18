@@ -1,56 +1,49 @@
-# 1 Samuel 17:1-51 | NVI
+# 1 Samuel 17:8-51 | NVI
 
-¹ Os filisteus juntaram as suas tropas para a guerra e se reuniram em Socó, de Judá. Acamparam em Efes-Damim, entre Socó e Azeca.
-² Saul e os israelitas reuniram-se e acamparam no vale de Elá, posicionando-se em linha de batalha para enfrentar os filisteus.
-³ Com o vale entre eles, os filisteus ocuparam uma colina, e os israelitas outra.
-⁴ Um guerreiro chamado Golias, que era de Gate, veio do acampamento filisteu. Tinha seis côvados e um palmo de altura.
-⁵ Ele usava um capacete de bronze e vestia uma couraça de escamas de bronze, que pesava cinco mil siclos;
-⁶ nas pernas, usava caneleiras de bronze e tinha um dardo de bronze pendurado nas costas.
-⁷ A haste da sua lança era parecida com uma lançadeira de tecelão e tinha uma ponta de ferro que pesava seiscentos siclos. O escudeiro ia à frente dele.
-⁸ Golias parou e gritou às tropas de Israel: — Por que vocês estão se posicionando para a batalha? Não sou eu um filisteu, e vocês não são os servos de Saul? Escolham um homem e o enviem a mim.
-⁹ Se ele puder lutar e vencer-me, seremos escravos de vocês; contudo, se eu o vencer e o puser fora de combate, vocês serão nossos escravos e nos servirão.
-¹⁰ O filisteu acrescentou: — Eu desafio hoje as tropas de Israel! Mandem-me um homem para lutar sozinho comigo.
-¹¹ Ao ouvirem as palavras do filisteu, Saul e todos os israelitas ficaram atônitos e apavorados.
-¹² Davi era filho de Jessé, o efrateu de Belém de Judá. Jessé tinha oito filhos e já era idoso na época de Saul.
-¹³ Os três filhos mais velhos de Jessé tinham ido para a guerra com Saul. Estes eram os nomes dos seus três filhos: Eliabe, o primogênito; Abinadabe, o segundo; e Samá, o terceiro.
-¹⁴ Davi era o caçula. Os três mais velhos seguiram Saul,
-¹⁵ mas Davi ia ao acampamento de Saul e voltava para apascentar as ovelhas do pai, em Belém.
-¹⁶ Durante quarenta dias, o filisteu se aproximava, de manhã e de tarde, e assumia a sua posição.
-¹⁷ Nessa ocasião, Jessé disse a Davi, o seu filho: — Pegue um efa de grãos torrados e dez pães e leve-os depressa aos seus irmãos no acampamento.
-¹⁸ Leve também estes dez queijos ao comandante da unidade deles. Veja como estão os seus irmãos e traga-me alguma garantia de que estão bem.
-¹⁹ Eles estão com Saul e com todos os homens de Israel no vale de Elá, lutando contra os filisteus.
-²⁰ Levantando-se de madrugada, Davi deixou o rebanho com outro pastor, pegou a carga e partiu, conforme Jessé lhe tinha ordenado. Chegou ao acampamento na hora em que, com o grito de batalha, o exército estava saindo para as posições de combate.
-²¹ Israel e os filisteus estavam se posicionando em linha de batalha, frente a frente.
-²² Davi deixou o que havia trazido com o responsável pelos suprimentos e correu para a linha de batalha para saber como estavam os seus irmãos.
-²³ Enquanto conversava com eles, Golias, o guerreiro filisteu de Gate, avançou desde a linha de batalha e lançou o seu desafio habitual, e Davi o ouviu.
-²⁴ Quando os israelitas viram o homem, todos fugiram cheios de medo.
-²⁵ Os israelitas diziam entre si: — Vocês viram aquele homem que subiu? Ele veio desafiar Israel. O rei dará grandes riquezas a quem o vencer. Também lhe dará a sua filha em casamento e isentará de impostos em Israel a família do seu pai.
-²⁶ Davi perguntou aos soldados que estavam ao seu lado: — O que será feito ao homem que matar esse filisteu e salvar a honra de Israel? Quem é este filisteu incircunciso para desafiar os exércitos do Deus vivo?
-²⁷ Repetiram a Davi o que haviam comentado e lhe disseram: — É isso que será feito ao homem que matá-lo.
-²⁸ Quando Eliabe, o irmão mais velho, ouviu Davi falando com os soldados, ficou muito irritado com ele e perguntou: — Por que você veio até aqui? Com quem deixou aquelas poucas ovelhas no deserto? Sei que você é presunçoso e que o seu coração é mau; você veio só para ver a batalha.
-²⁹ Davi respondeu: — O que fiz agora? Será que não posso nem mesmo conversar?
-³⁰ Ele, então, se virou para outro e fez a mesma pergunta, e os homens responderam-lhe como antes.
-³¹ As palavras de Davi chegaram aos ouvidos de Saul, que o mandou chamar.
-³² Davi disse a Saul: — Ninguém deve ficar com o coração abatido por causa desse filisteu; o teu servo irá e lutará contra ele.
-³³ Saul respondeu: — Você não tem condições de lutar contra esse filisteu; você é apenas um rapaz, e ele é um guerreiro desde a sua juventude.
-³⁴ Davi, entretanto, disse a Saul: — Eu, o teu servo, apascentava as ovelhas do meu pai; quando vinha um leão ou um urso e levava uma ovelha do rebanho,
-³⁵ eu saía atrás dele, o feria e livrava a ovelha da sua boca. Quando ele se levantava contra mim, eu o segurava pela juba e lhe dava golpes até matá-lo.
-³⁶ O teu servo pôde matar um leão e um urso; esse filisteu incircunciso será como um deles, pois desafiou os exércitos do Deus vivo.
-³⁷ Davi concluiu: "O Senhor que me livrou das garras do leão e das garras do urso me livrará das mãos desse filisteu". Diante disso, Saul disse a Davi: — Vá, e que o Senhor esteja com você.
-³⁸ Saul vestiu Davi com a sua própria túnica, colocou nele uma armadura e lhe pôs um capacete de bronze na cabeça.
-³⁹ Davi prendeu a espada sobre a túnica e tentou andar, porque não estava acostumado com aquilo. Ele disse a Saul: — Não consigo andar com isto, pois não estou acostumado. Então, tirou tudo aquilo.
-⁴⁰ Em seguida, pegou o seu cajado, escolheu no riacho cinco pedras lisas e colocou-as na bolsa, isto é, no seu alforje de pastor; com a sua funda na mão, aproximou-se do filisteu.
-⁴¹ Enquanto isso, o filisteu, com o seu escudeiro à frente, aproximava-se de Davi.
-⁴² Ele olhou para Davi com desprezo, pois viu que era só um rapaz, ruivo e de boa aparência.
-⁴³ Ele disse a Davi: — Por acaso, sou um cão, para que você venha contra mim com pedaços de pau? Invocando os seus deuses, o filisteu amaldiçoou Davi,
-⁴⁴ dizendo: — Venha aqui, e darei a sua carne às aves do céu e aos animais do campo!
-⁴⁵ Davi, porém, disse ao filisteu: — Você vem contra mim com espada, com lança e com dardos, mas eu vou contra você em nome do Senhor dos Exércitos, o Deus dos exércitos de Israel, a quem você desafiou.
-⁴⁶ Hoje mesmo o Senhor o entregará nas minhas mãos, eu o matarei e cortarei a sua cabeça. Hoje mesmo darei os cadáveres do exército filisteu às aves do céu e aos animais selvagens, e toda a terra saberá que há Deus em Israel.
-⁴⁷ Todos os que estão aqui reunidos saberão que não é por espada nem por lança que o Senhor concede vitória. A batalha é do Senhor, e ele entregará todos vocês nas nossas mãos.
-⁴⁸ Quando o filisteu começou a vir na direção de Davi, este correu para a linha de batalha para enfrentá-lo.
-⁴⁹ Tirando uma pedra do alforje, arremessou-a com a funda e atingiu o filisteu na testa, de tal modo que ela ficou encravada, e ele caiu, dando com o rosto no chão.
-⁵⁰ Assim, Davi venceu o filisteu com uma funda e uma pedra; sem espada na mão, derrubou o filisteu e o matou.
-⁵¹ Davi correu, pôs os pés sobre ele e, desembainhando a espada do filisteu, acabou de matá-lo, cortando-lhe a cabeça com ela. Quando os filisteus viram que o seu guerreiro estava morto, recuaram e fugiram.
+⁸ Golias parou e gritou às tropas de Israel: — Por que vocês estão se posicionando para a batalha? Não sou eu um filisteu, e vocês não são os servos de Saul? Escolham um homem e o enviem a mim.  
+⁹ Se ele puder lutar e vencer-me, seremos escravos de vocês; contudo, se eu o vencer e o puser fora de combate, vocês serão nossos escravos e nos servirão.  
+¹⁰ O filisteu acrescentou: — Eu desafio hoje as tropas de Israel! Mandem-me um homem para lutar sozinho comigo.  
+¹¹ Ao ouvirem as palavras do filisteu, Saul e todos os israelitas ficaram atônitos e apavorados.  
+¹² Davi era filho de Jessé, o efrateu de Belém de Judá. Jessé tinha oito filhos e já era idoso na época de Saul.  
+¹³ Os três filhos mais velhos de Jessé tinham ido para a guerra com Saul. Estes eram os nomes dos seus três filhos: Eliabe, o primogênito; Abinadabe, o segundo; e Samá, o terceiro.  
+¹⁴ Davi era o caçula. Os três mais velhos seguiram Saul,  
+¹⁵ mas Davi ia ao acampamento de Saul e voltava para apascentar as ovelhas do pai, em Belém.  
+¹⁶ Durante quarenta dias, o filisteu se aproximava, de manhã e de tarde, e assumia a sua posição.  
+¹⁷ Nessa ocasião, Jessé disse a Davi, o seu filho: — Pegue um efa de grãos torrados e dez pães e leve-os depressa aos seus irmãos no acampamento.  
+¹⁸ Leve também estes dez queijos ao comandante da unidade deles. Veja como estão os seus irmãos e traga-me alguma garantia de que estão bem.  
+¹⁹ Eles estão com Saul e com todos os homens de Israel no vale de Elá, lutando contra os filisteus.  
+²⁰ Levantando-se de madrugada, Davi deixou o rebanho com outro pastor, pegou a carga e partiu, conforme Jessé lhe tinha ordenado. Chegou ao acampamento na hora em que, com o grito de batalha, o exército estava saindo para as posições de combate.  
+²¹ Israel e os filisteus estavam se posicionando em linha de batalha, frente a frente.  
+²² Davi deixou o que havia trazido com o responsável pelos suprimentos e correu para a linha de batalha para saber como estavam os seus irmãos.  
+²³ Enquanto conversava com eles, Golias, o guerreiro filisteu de Gate, avançou desde a linha de batalha e lançou o seu desafio habitual, e Davi o ouviu.  
+²⁴ Quando os israelitas viram o homem, todos fugiram cheios de medo.  
+²⁵ Os israelitas diziam entre si: — Vocês viram aquele homem que subiu? Ele veio desafiar Israel. O rei dará grandes riquezas a quem o vencer. Também lhe dará a sua filha em casamento e isentará de impostos em Israel a família do seu pai.  
+²⁶ Davi perguntou aos soldados que estavam ao seu lado: — O que será feito ao homem que matar esse filisteu e salvar a honra de Israel? Quem é este filisteu incircunciso para desafiar os exércitos do Deus vivo?  
+²⁷ Repetiram a Davi o que haviam comentado e lhe disseram: — É isso que será feito ao homem que matá-lo.  
+²⁸ Quando Eliabe, o irmão mais velho, ouviu Davi falando com os soldados, ficou muito irritado com ele e perguntou: — Por que você veio até aqui? Com quem deixou aquelas poucas ovelhas no deserto? Sei que você é presunçoso e que o seu coração é mau; você veio só para ver a batalha.  
+²⁹ Davi respondeu: — O que fiz agora? Será que não posso nem mesmo conversar?  
+³⁰ Ele, então, se virou para outro e fez a mesma pergunta, e os homens responderam-lhe como antes.  
+³¹ As palavras de Davi chegaram aos ouvidos de Saul, que o mandou chamar.  
+³² Davi disse a Saul: — Ninguém deve ficar com o coração abatido por causa desse filisteu; o teu servo irá e lutará contra ele.  
+³³ Saul respondeu: — Você não tem condições de lutar contra esse filisteu; você é apenas um rapaz, e ele é um guerreiro desde a sua juventude.  
+³⁴ Davi, entretanto, disse a Saul: — Eu, o teu servo, apascentava as ovelhas do meu pai; quando vinha um leão ou um urso e levava uma ovelha do rebanho,  
+³⁵ eu saía atrás dele, o feria e livrava a ovelha da sua boca. Quando ele se levantava contra mim, eu o segurava pela juba e lhe dava golpes até matá-lo.  
+³⁶ O teu servo pôde matar um leão e um urso; esse filisteu incircunciso será como um deles, pois desafiou os exércitos do Deus vivo.  
+³⁷ Davi concluiu: "O Senhor que me livrou das garras do leão e das garras do urso me livrará das mãos desse filisteu". Diante disso, Saul disse a Davi: — Vá, e que o Senhor esteja com você.  
+³⁸ Saul vestiu Davi com a sua própria túnica, colocou nele uma armadura e lhe pôs um capacete de bronze na cabeça.  
+³⁹ Davi prendeu a espada sobre a túnica e tentou andar, porque não estava acostumado com aquilo. Ele disse a Saul: — Não consigo andar com isto, pois não estou acostumado. Então, tirou tudo aquilo.  
+⁴⁰ Em seguida, pegou o seu cajado, escolheu no riacho cinco pedras lisas e colocou-as na bolsa, isto é, no seu alforje de pastor; com a sua funda na mão, aproximou-se do filisteu.  
+⁴¹ Enquanto isso, o filisteu, com o seu escudeiro à frente, aproximava-se de Davi.  
+⁴² Ele olhou para Davi com desprezo, pois viu que era só um rapaz, ruivo e de boa aparência.  
+⁴³ Ele disse a Davi: — Por acaso, sou um cão, para que você venha contra mim com pedaços de pau? Invocando os seus deuses, o filisteu amaldiçoou Davi,  
+⁴⁴ dizendo: — Venha aqui, e darei a sua carne às aves do céu e aos animais do campo!  
+⁴⁵ Davi, porém, disse ao filisteu: — Você vem contra mim com espada, com lança e com dardos, mas eu vou contra você em nome do Senhor dos Exércitos, o Deus dos exércitos de Israel, a quem você desafiou.  
+⁴⁶ Hoje mesmo o Senhor o entregará nas minhas mãos, eu o matarei e cortarei a sua cabeça. Hoje mesmo darei os cadáveres do exército filisteu às aves do céu e aos animais selvagens, e toda a terra saberá que há Deus em Israel.  
+⁴⁷ Todos os que estão aqui reunidos saberão que não é por espada nem por lança que o Senhor concede vitória. A batalha é do Senhor, e ele entregará todos vocês nas nossas mãos.  
+⁴⁸ Quando o filisteu começou a vir na direção de Davi, este correu para a linha de batalha para enfrentá-lo.  
+⁴⁹ Tirando uma pedra do alforje, arremessou-a com a funda e atingiu o filisteu na testa, de tal modo que ela ficou encravada, e ele caiu, dando com o rosto no chão.  
+⁵⁰ Assim, Davi venceu o filisteu com uma funda e uma pedra; sem espada na mão, derrubou o filisteu e o matou.  
+⁵¹ Davi correu, pôs os pés sobre ele e, desembainhando a espada do filisteu, acabou de matá-lo, cortando-lhe a cabeça com ela. Quando os filisteus viram que o seu guerreiro estava morto, recuaram e fugiram.  
 
 ---
 
