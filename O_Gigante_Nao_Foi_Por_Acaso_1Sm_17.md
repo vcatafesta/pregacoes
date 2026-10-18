@@ -165,17 +165,28 @@ Quando o filisteu gritou, dá-me um homem, quem deveria ter ido?
 **Saul**.  
 Quem deveria ter ido?  
 **Saul**.  
-Quem deveria ter ido? >> Mas o ungido que está em desobediência se torna covarde e incapaz de lutar as guerras de Deus. [risadas] >> Quando ele disse: "Dá-me [grito] um homem".
-Oh, glória!
-A Bíblia diz que Israel ficou atônito, Saul ficou atônito e eu entreguei uma chave pra igreja na leitura.
-Eu pedi para vocês dizerem bem alto o quê? >> Só a irmã aqui da frente. >> Dá-me [grito] um homem.
-Israel ficou atônito.
-Saul ficou atônito e eu pedi para você gritar.
-Deus não.
-Então eu vou repetir.
-Israel ficou atônito.
-Saul ficou atônito. >> Eu tenho uma palavra para você que está atônito com um diagnóstico, atônito com a soma de uma dívida, atônito com o futuro do Brasil, atônito com o filho que está nas drogas, atônito com o processo judicial quase perdido. **Acalma a tua alma.** [grito] Porque o teu Deus, o teu Deus, o teu Deus. [aplausos]
-
+Quem deveria ter ido?  
+Mas o ungido que está em desobediência se torna covarde e incapaz de lutar as guerras de Deus.  
+Quando ele disse: "Dá-me [grito] um homem".  
+A Bíblia diz que Israel ficou atônito,  
+Saul ficou atônito  
+**e eu entreguei uma chave pra igreja na leitura**.  
+Eu pedi para vocês dizerem bem alto o quê?  
+Dá-me um homem!  
+**Israel ficou atônito**.  
+**Saul ficou atônito  
+e eu pedi para você gritar.  
+**Deus não**.  
+Então eu vou repetir.  
+Israel ficou atônito.  
+Saul ficou atônito.  
+Eu tenho uma palavra para você:  
+**que está atônito com um diagnóstico**,  
+**atônito com a soma de uma dívida**,  
+**atônito com o futuro do Brasil**,  
+**atônito com o filho que está nas drogas**,  
+**atônito com o processo judicial quase perdido**.  
+**Acalma a tua alma.** Porque o teu Deus, o teu Deus, o teu Deus.  
 
 ## 2. DEUS CHEGA PRIMEIRO E JÁ PREPARA A SAÍDA
 
