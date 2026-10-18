@@ -1,3 +1,12 @@
+# 1 Samuel 17:1-51 | NVI
+
+¹ Os filisteus juntaram as suas tropas para a guerra e se reuniram em Socó, de Judá. Acamparam em Efes-Damim, entre Socó e Azeca.
+² Saul e os israelitas reuniram-se e acamparam no vale de Elá, posicionando-se em linha de batalha para enfrentar os filisteus.
+³ Com o vale entre eles, os filisteus ocuparam uma colina, e os israelitas outra.
+⁴ Um guerreiro chamado Golias, que era de Gate, veio do acampamento filisteu. Tinha seis côvados e um palmo de altura.
+⁵ Ele usava um capacete de bronze e vestia uma couraça de escamas de bronze, que pesava cinco mil siclos;
+⁶ nas pernas, usava caneleiras de bronze e tinha um dardo de bronze pendurado nas costas.
+⁷ A haste da sua lança era parecida com uma lançadeira de tecelão e tinha uma ponta de ferro que pesava seiscentos siclos. O escudeiro ia à frente dele.
 ⁸ Golias parou e gritou às tropas de Israel: — Por que vocês estão se posicionando para a batalha? Não sou eu um filisteu, e vocês não são os servos de Saul? Escolham um homem e o enviem a mim.
 ⁹ Se ele puder lutar e vencer-me, seremos escravos de vocês; contudo, se eu o vencer e o puser fora de combate, vocês serão nossos escravos e nos servirão.
 ¹⁰ O filisteu acrescentou: — Eu desafio hoje as tropas de Israel! Mandem-me um homem para lutar sozinho comigo.
@@ -43,8 +52,7 @@
 ⁵⁰ Assim, Davi venceu o filisteu com uma funda e uma pedra; sem espada na mão, derrubou o filisteu e o matou.
 ⁵¹ Davi correu, pôs os pés sobre ele e, desembainhando a espada do filisteu, acabou de matá-lo, cortando-lhe a cabeça com ela. Quando os filisteus viram que o seu guerreiro estava morto, recuaram e fugiram.
 
-1 Samuel 17:8-51 | NVI
-
+---
 
 # Roteiro da Pregação: Davi e Golias
 
