@@ -7,6 +7,25 @@
 
 ---
 
+## 📖 Textos bíblicos
+
+### João 9:1-3
+> ¹ E, passando Jesus, viu um homem cego de nascença.
+> ² E os seus discípulos lhe perguntaram, dizendo: Rabi, quem pecou, este ou seus pais, para que nascesse cego?
+> ³ Jesus respondeu: Nem ele pecou, nem seus pais; mas foi assim para que se manifestem nele as obras de Deus.
+
+### Lucas 10:30-35
+> ³⁰ E, respondendo Jesus, disse: Descia um homem de Jerusalém para Jericó, e caiu nas mãos dos salteadores, os quais o despojaram e, espancando-o, se retiraram, deixando-o meio morto.
+> ³¹ E, ocasionalmente, descia pelo mesmo caminho certo sacerdote; e, vendo-o, passou de largo.
+> ³² E, de igual modo, também um levita, chegando àquele lugar e vendo-o, passou de largo.
+> ³³ Mas um samaritano que ia de viagem chegou ao pé dele e, vendo-o, moveu-se de íntima compaixão.
+> ³⁴ E, aproximando-se, atou-lhe as feridas, aplicando-lhes azeite e vinho; e, pondo-o sobre a sua cavalgadura, levou-o para uma estalagem e cuidou dele.
+> ³⁵ E, partindo ao outro dia, tirou dois dinheiros, e deu-os ao hospedeiro, e disse-lhe: Cuida dele, e tudo o que de mais gastares eu to pagarei quando voltar.
+
+*(Almeida Revista e Corrigida)*
+
+---
+
 ## 1. O cego não via, mas foi visto `[03:03]`
 
 🎯 **Ideia central:** a história não começa com o homem procurando Jesus. Começa com **Jesus vendo o homem**.
